@@ -1,0 +1,3 @@
+# Stachu kodisz?
+Dodałem treść :D
+Postęp w nauce 2%...
