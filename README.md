@@ -1,4 +1,7 @@
+3 próba
+
 nie udało się ponowna próba
+
 zmiana nazwy
 
 
