@@ -1,4 +1,7 @@
+4
+
 3 próba
+
 
 nie udało się ponowna próba
 
