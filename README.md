@@ -1,3 +1,6 @@
+
+Udało się, nie potrzebnie commitowałem :p
+
 6
 
 5
